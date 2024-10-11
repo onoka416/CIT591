@@ -1,1 +1,1 @@
-#  reach out through profacademic1@gmail.com for CIT591 solution.
+# Reach out via profacademic1@gmail.com for solutions to CIT591."
